@@ -22,7 +22,7 @@ FXroad has been a notable name in the forex and CFD trading industry, offering t
 | Liquidity power | No information | 
 | Mobile trading | Yes |
 
-![image]()
+![image](https://github.com/Trading-review/FXroad-review-2025/blob/893817e2301c806e1beb5c5a980cdc2db5c6c0ce/67d0057f43261f001da3f45e.jpg)
 
 Key Updates and Changes in 2025
 --------------------
